@@ -1,0 +1,1 @@
+[Manual de usuario herramienta de análisis cinético y predicción de estabilidad.docx](https://github.com/user-attachments/files/34526090/Manual.de.usuario.herramienta.de.analisis.cinetico.y.prediccion.de.estabilidad.docx)
